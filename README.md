@@ -2,7 +2,7 @@
 - 👀 I’m interested in recruitment process
 - 🌱 I’m currently learning about tecnologies and this skills
 - 💞️ I’m looking to collaborate on find a good job for the open work people
-- 📫 How to reach me, send me a emial: valeriatupan@gmail.com
+- 📫 How to reach me, send me a email: valeriatupan@gmail.com
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am a nerd person: love strak trek, manges and pop culture events
 
