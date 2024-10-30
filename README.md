@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on find a good job for the open work people
 - 📫 How to reach me, send me a email: valeriatupan@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I am a nerd person: love strak trek, manges and pop culture events
+- ⚡ Fun fact: I am a nerd person: love strak trek, mangas and pop culture events
 
 <!---
 vtupan/vtupan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
